@@ -1,4 +1,2 @@
-# Gacha Funk
-there is no idea so just download it.
-
-no hay ideas así que solo descargarlo.
+# Gacha Funk'
+no tengo ni idea de escribir acá así que solo descargarlo. (cuando salga XDDDD)
